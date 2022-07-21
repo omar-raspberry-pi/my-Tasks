@@ -12,5 +12,7 @@ https://github.com/omar-raspberry-pi/my-Tasks/blob/main/Step_Motor/Step_Motor.PN
 https://www.tinkercad.com/things/60YjaObBT7w?sharecode=mbpKzFJ8ByDQa2UY7ZNQzoTPCYRHEiUr5kQexYfAljQ
 
 الأسبوع الثالث
+
+
 1-دائرة التشغيل وإيقاف التشغيل
 https://www.tinkercad.com/things/7dkRMkIx3iA?sharecode=cVcXzlh2GTRqZjufHV7c_u9x6DVA-CTqtXbB0eK6gQE
