@@ -19,3 +19,9 @@ https://www.tinkercad.com/things/60YjaObBT7w?sharecode=mbpKzFJ8ByDQa2UY7ZNQzoTPC
 
 1-دائرة التشغيل وإيقاف التشغيل
 https://www.tinkercad.com/things/7dkRMkIx3iA?sharecode=cVcXzlh2GTRqZjufHV7c_u9x6DVA-CTqtXbB0eK6gQE
+
+الاسبوع الرابع
+الانلوق
+https://www.tinkercad.com/things/gU6CwFsS3jl
+
+الدجتل 
