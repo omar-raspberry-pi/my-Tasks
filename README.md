@@ -28,3 +28,4 @@ https://www.tinkercad.com/things/7dkRMkIx3iA?sharecode=cVcXzlh2GTRqZjufHV7c_u9x6
 https://www.tinkercad.com/things/gU6CwFsS3jl
 
 الدجتل 
+https://www.tinkercad.com/things/jF4opz5qwU2?sharecode=ZLAOkW9_8Ug3FPpVeq24eEVcYoFfRufFHUlFyE3ysWU
